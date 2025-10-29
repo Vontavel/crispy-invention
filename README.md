@@ -1,0 +1,1 @@
+"Crispy-invention" most likely refers to the accidental invention of potato chips by chef George Crum in 1853, though it could also refer to the invention of the air fryer by Fred van der Weij or the creation of Rice Krispies Treats. Each of these is a "crispy invention" that changed snacking forever. 
